@@ -1,1 +1,1 @@
-This is an anarchic fighter 
+Il a lutté contre le monstre du capitalisme
